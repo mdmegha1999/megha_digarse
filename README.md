@@ -1,3 +1,3 @@
-# vinaydigarse.github.io
+# meghadigarse.github.io
 
-https://vinaydigarse.github.io/
+https://meghadigarse.github.io/
